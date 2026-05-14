@@ -1,4 +1,4 @@
-#  
+#  Experience pls donate like never before with pls donate vip Scripts, the #1 Script. Includes auto-collect and no clip for unbeatable performance.
 
 
 
